@@ -1,0 +1,1 @@
+# repozitory-a-pikeringa
